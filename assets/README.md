@@ -1,0 +1,1 @@
+A imagem ingrid-profile.png é um retrato profissional fornecido pela titular para uso neste portfólio. Ela não está licenciada para reutilização fora deste projeto.
